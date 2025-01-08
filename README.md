@@ -1,3 +1,5 @@
+# <a href="https://bit.ly/instanfr">CLIQUEZ ET RECEVEZ LE BONUS</a>
+
 # MaChance Casino : Des Gains Exceptionnels, Une Expérience Unique
 
 MaChance Casino est une plateforme de jeux en ligne moderne et sécurisée, particulièrement prisée des joueurs français. Elle propose une vaste sélection de jeux, incluant des machines à sous captivantes et des classiques tels que la roulette et le blackjack, répondant ainsi aux attentes des joueurs, qu'ils soient novices ou expérimentés.
